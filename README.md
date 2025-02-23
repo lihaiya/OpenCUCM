@@ -19,3 +19,4 @@ Email:leehear@gmail.com
 WeChat:freeipcc
 
 ![image](https://github.com/user-attachments/assets/b1802585-119f-45db-b5e4-a5c563a9811c)
+## 😄价值观：我们坚信，软件只有被用起来，才能给用户带去价值，才能让自身产生迭代！
