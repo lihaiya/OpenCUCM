@@ -18,6 +18,7 @@ Email:leehear@gmail.com
 
 WeChat:David_Li_Haiya
 
-![image](https://github.com/user-attachments/assets/b1802585-119f-45db-b5e4-a5c563a9811c)
+![image](https://github.com/user-attachments/assets/69cf3968-da44-419e-b543-035eda8bf37a)
+
 
 # 😄价值观：我们坚信，软件只有被用起来，才能给用户带去价值，才能让自身产生迭代！！！！！！！
